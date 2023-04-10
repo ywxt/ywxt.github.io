@@ -8,7 +8,10 @@ subtitle: ''
 description: 'Blog'
 keywords: Blog
 author: ywxt
-language: zh-cn
+language:
+  - zh-TW
+  - zh-CN
+  - en
 timezone: 'Asia/Shanghai'
 
 # URL

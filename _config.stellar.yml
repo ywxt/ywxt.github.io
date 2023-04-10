@@ -16,4 +16,8 @@ comments:
     data-lang: zh-CN
     data-loading: lazy
     crossorigin: anonymous
+
+article:
+  auto_cover: true
+  auto_excerpt: 200
     
