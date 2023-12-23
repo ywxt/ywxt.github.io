@@ -10,3 +10,5 @@ for dir in "$workdir"/books/*; do
     fi
 done
 
+cp $workdir/index.html $workdir/publish/index.html
+
