@@ -1,0 +1,6 @@
+[book]
+authors = ["ywxt"]
+language = "en"
+multilingual = false
+src = "src"
+title = "Our Secret Base"
