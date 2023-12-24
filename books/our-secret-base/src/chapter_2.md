@@ -1,74 +1,72 @@
 # Chapter 2: The Weird Classmate behind My Seat
 
-The place where Yan Jingxing and her uncle live is a three-story courtyard. This used to be the home of her grandparents, who passed it on to their two sons after their deaths. In addition to the main building, there is a room outside the door for parking and storing miscellaneous items.
+Yan Jingxing and his uncle lived in a three-story courtyard. This had been the home of their grandparents. After the two elderly passed away, they left it to their two sons to take care of. Besides the main building, there was also a house outside the gate used for parking and storing odds and ends.
 
-There are two tall orange trees in the courtyard. The branches are lush and the leaves are thick, making it a good place to take a rest under the shade.
+There were two tall orange trees in the yard. With their abundant branches and leaves, they provided a shady spot for taking a break from the heat.
 
-Every time the wind blows through the tree canopy, the layers of leaves collide and rub against each other, creating a "rustling" sound that echoes like waves crashing against the shore.
+Every time the wind blew through the canopy, the overlapping leaves would rub against each other, creating a "rustling" sound like waves crashing on the shore.
 
-Uncle said that the oranges would be ripe in the autumn. The fruit from these two trees could fill three baskets, so much that they couldn't eat them all because of sour taste and have to share it with their neighbors.
+Uncle said that in autumn, the oranges would be ripe. The two trees would yield enough fruit to fill three baskets, so much that they couldn't finish eating it all even if their teeth hurt, and they would have to share it with their neighbors.
 
-He also said that when he was a child, the most anticipated thing all year round was the fruiting of the orange tree in the yard. The sweet taste still makes his mouth water when he thinks about it.
+He also said that when he was a child, the thing he looked forward to most every year was the oranges on the tree in the courtyard. The sweet taste of those oranges, whenever he thought about it now, still made his mouth water.
 
-Yan Yongzhi's words are mixed with my childhood memories, and he speaks vividly, which gives Yan Jingxing a lot of expectations.
+These words from Uncle were interspersed with personal childhood memories, making them vivid and interesting, and giving Yan Jingxing great anticipation.
 
-However, the first thing for them to do is to clean the house.
+However, the first thing they needed to do as uncle and nephew was to clean up the house.
 
-The two brothers of the Yan family left for the city to seek their fortunes early. After the death of old men, the house remained unattended and almost became an abandoned empty house. It was not until today that it was reused, so there was a lot of dust in every corner of the house.
+Both of the Yan brothers had left for the city early on in their lives, and after the death of their elderly family members, the house had been left unattended, almost becoming a dilapidated and abandoned structure. It was only today that it was being put to use again, so there was a lot of dust accumulated in every corner of the house.
 
-First, remove all the unused clutter from the living room, kitchen, and two bedrooms, sweep the floor, removes dust, use a mop to clean the dirt, and then use a bucket and cloth to wipe the remaining areas;
+First, they cleared out all the unused clutter from the most frequently used living room, kitchen, and two bedrooms, swept and mopped the floors, and wiped down the rest of the house with buckets and rags.
 
-Then take out the old bed sheets, bedding and damp furniture to sun them, throw away anything that has mold, make a list of things that need to be re-purchased, and go to the only supermarket in town to buy them;
+Then they took out the old bed sheets, quilts, and damp furniture to air in the sun, threw away everything that was moldy, and made a list of things that needed to be repurchased, which they bought from the only supermarket in town.
 
-Finally, They tidy up luggages, place daily necessities, and make the bed with new quilts and pillows...
+Finally, they unpacked their luggage, put away their daily necessities, and made the beds with new quilts and pillows.
 
-The uncle and nephew work hard together for two days and nights. They spend the first night back in the hotel in town, and finally settle down in their new home on the second night.
+The uncle and nephew worked together tirelessly for two days and one night. They spent the first night back at the hotel in town and only settled into their new home on the second night.
 
-Yan Jingxing, after taking a bath and changing clothes, staggers and falls exhausted onto the bed. At this time, he hears his uncle shouting outside the door:
+Yan Jingxing took a shower, changed into clean clothes, staggered to his bed, and collapsed onto it, exhausted. Just then, he heard his uncle calling from outside the door.
 
-"Oh, I almost forgot to tell you that you are going to report to school tomorrow."
+"Oh, I almost forgot to tell you. You're going to school tomorrow."
 
-"Tomorrow?!
+"Tomorrow?!"
 
-Yan Jingxing complains loudly.
+Yan Jingxing exclaimed in complaint.
 
-"I just finished tidying up my things, can't I take a two-day break?"
+"Can't we rest for a couple of days? We just finished unpacking."
 
-"Tomorrow is Monday, and you are a transfer student who came midway through the semester. You need to catch up with the pace of the class as soon as possible."
+"Tomorrow is Monday. You're a transfer student coming in mid-semester, so you need to catch up with the curriculum as soon as possible."
 
 "I don't want to go to school..."
 
-"Okay, I've set the alarm clock in the living room. Remember to get up early and don't let me remind you every time."
+"Alright, I've already set the alarm clock in the living room. Remember to get up early, don't make me rush you every time."
 
-Alas...
-
-The boy buries his face in the pillow, not wanting to face reality.
+With a sigh, the boy buried his face deeply into the pillow, not wanting to face reality.
 
 ...
 
-The next day, his uncle drives him to the school.
+The next day, his uncle drove him to the school.
 
-Yan Jingxing appears lethargic while in the car, but as soon as he exits the vehicle, he perks up, adjusting his expression.
+Yan Jingxing was still sluggish in the car, but as soon as he got off the vehicle, he perked up and adjusted his expression.
 
-Despite his dissatisfaction, he heeds his uncle's advice to "leave a good impression on the new classmates and teachers."
+Despite his dissatisfaction, he had taken his uncle's advice to "leave a good impression on the new classmates and teachers" to heart.
 
-The teenage boy's ego compels him to face this situation seriously.
+Simply due to the vanity of a pubescent boy, he was determined to face this first encounter seriously.
 
-Yan Yongzhi looks at his nephew with a serious expression and can't help but chuckle. He pats Yan Jingxing on the shoulder.
+Yan Yongzhi looked at his nephew with a serious expression on his face and couldn't help but feel amused. He patted his nephew on the shoulder.
 
-"I need to go to the administrative office first. Do you think you can find the office by yourself?"
+"I'm going to the administrative office first. Can you find the office by yourself?"
 
 "Of course."
 
-His uncle quickly pockets the keys and leaves. With his backpack on his back, he looks at the sign in front of the school gate that says "Baiyue Town Experimental Middle School" and feels anxious.
+The uncle left in a hurry, leaving the boy with a backpack, staring at the sign in front of the school that read "Baiyue Town Experimental Middle School," feeling anxious.
 
-As he builds up his courage, he follows the instructions of the guard uncle and finds the second grade office along the stairs.
+As he built up his courage and followed the instructions of the security guard, he found the second-grade office along the stairs.
 
 "Is Ms Gao here?"
 
 "Oh, you're here. Are you Yan Jingxing?"
 
-A middle-aged female teacher stands up from her seat. Her face is full of exhaustion, and her dark circles suggest she has not been resting well.
+A middle-aged female teacher stood up from her seat. There was fatigue on her face and her black eye bags looked like she hadn't had a good rest in a long time.
 
 "Yes."
 
@@ -76,111 +74,111 @@ A middle-aged female teacher stands up from her seat. Her face is full of exhaus
 
 "Okay."
 
-Yan Jingxing clutches the strap of his backpack and nods.
+Yan Jingxing grabbed the backpack strap and nodded.
 
 ...
 
-It seems that every city currently has a school called Experimental Middle School, and in some places, there are even multiple branches distinguished by numbers. However, in a small town like Baiyue, there is only one.
+It seems that every city has a school called Experimental Middle School, and in some places, there are even multiple branches distinguished by numbers. But in a small town like Baiyue, there is only one.
 
-After the flag-raising ceremony and before the start of the first class, there is a short break. The classroom teacher has not arrived yet, and every class in the corridor is noisy. The students sitting in front and back are chatting and laughing, while those sitting side by side are playing or simply leaving their seats to talk with friends.
+After the flag-raising ceremony and before the start of the first class, there was a short break. The classroom teacher hadn't arrived yet, and every class in the corridor was noisy. The students sitting in front and back were chatting and laughing, while those sitting side by side were playing or simply leaving their seats to talk with friends.
 
-The scorching sun shines through the windows, making the glass transparent and white. It also illuminates the damp marble floor that has just been mopped by the on-duty students, making it sparkle.
+The scorching sun shone through the windows, making the glass transparent and white. It also illuminated the damp marble floor that had just been mopped by the on-duty students, making it sparkle.
 
-In front of the teaching building stand two tall southern magnolia trees. Their verdant branches and leaves gently sway in the gentle breeze, casting shadows on the corner of the blackboard where someone has drawn stick figures with chalk. The warm and lively atmosphere floats in the air.
+In front of the teaching building stood two tall southern magnolia trees. Their verdant branches and leaves gently swayed in the gentle breeze, casting shadows on the corner of the blackboard where someone had drawn stick figures with chalk. The warm and lively atmosphere floated in the air.
 
-When the bell rings, indicating the start of class, the class teacher walks to the doorway. She puts on a stern expression that the students are all too familiar with and ushers everyone back to their seats.
+Until the bell rang, indicating the start of class, and the class teacher walked to the doorway. She put on a stern expression that the students were all too familiar with and ushered everyone back to their seats.
 
-"I can hear you all from Class 5! You are making such a racket!"
+"I could hear you all from Class 5! You were making such a racket!"
 
-After the students are seated, the teacher walks up to the podium. Instead of immediately asking them to take out their Chinese textbooks, she looks around outside the classroom, as if waiting for someone to come in.
+After the students were seated, the teacher walked up to the podium. Instead of immediately asking them to take out their Chinese textbooks, she looked around outside the classroom, as if waiting for someone to come in.
 
-The students in their seats are all curious. Then, a boy they have never seen before walks in.
+The students in their seats were all curious. Then, a boy they had never seen before walked in.
 
-"Introduce yourself," the teacher says.
+"Introduce yourself," the teacher said.
 
-"Hello everyone, I'm Yan Jingxing. I recently moved here from Jinjiang City. Yan is from 'swallow,'[^Yan] and Jingxing comes from the phrase 'Gao Shan Yang Zhi, Jing Xing Xing Zhi'[^Gaoshan] in The Book of Songs..."
+"Hello everyone, I'm Yan Jingxing. I recently moved here from Jinjiang City. Yan is from 'swallow'[^Yan] and Jingxing comes from the phrase 'Gao Shan Yang Zhi, Jing Xing Xing Zhi'[^Gaoshan] in The Book of Songs..."
 
-Yan Jingxing picks up the chalk and writes his name on the blackboard. When he turns around, he sees the faces of all his classmates for the first time.
+Yan Jingxing picked up a piece of chalk and wrote his name on the blackboard. When he turned around, he saw the faces of all his classmates for the first time.
 
-Of course, since they are all meeting for the first time, everyone's faces are unfamiliar to him. His gaze scans over them, and he can't possibly remember them all at once. But then--
+Of course, since they were all meeting for the first time, everyone's faces were unfamiliar to him. His gaze scanned over them, and he couldn't possibly remember them all at once. But then--
 
 "..."
 
-Yan Jingxing's eyes widen in surprise.
+Yan Jingxing's eyes widened in surprise.
 
-In the last row, he sees a familiar figure.
+In the last row, he saw a familiar figure.
 
-She sits alone at a table, with her long hair covering most of her face.
+She sat alone at a table, with her long hair covering most of her face.
 
-He rubs his eyes, wondering if he is seeing things.
+He rubbed his eyes, wondering if he was seeing things.
 
-It is the girl he encountered at the rest stop in her swimsuit.
+It was the girl he had encountered at the rest stop in her swimsuit.
 
-She jumped into the sea and disappeared, so Yan Jingxing thought he would never see her again, and he felt a bit regretful about that.
+She had jumped into the sea and disappeared, so Yan Jingxing had thought he would never see her again, and he felt a bit regretful about that.
 
-It turns out she isn't a mermaid, but a middle school student just like him...
+Turns out she wasn't a mermaid, but a middle school student just like him...
 
-Well, of course, Yan Jingxing thinks to himself. He just didn't expect that they would meet again so soon, and even happen to be in the same school and same class.
+Well, of course, Yan Jingxing thought to himself. He just didn't expect that they would meet again so soon, and even happen to be in the same school and same class.
 
-The girl sitting in the back seems to notice him at the same time. She looks up at the podium with a look of surprise and uncertainty before quickly lowering her head again.
+The girl sitting in the back seemed to notice him at the same time. She looked up at the podium with a look of surprise and uncertainty before quickly lowering her head again.
 
 "Jingxing, what's wrong?"
 
 "Ah, nothing..."
 
-Yan Jingxing, who is distracted by the unexpected reunion, doesn't have the mind to say much. After a few random comments, he goes down amidst the applause of his classmates.
+Yan Jingxing, who was distracted by the unexpected reunion, didn't have the heart to say much. After a few random comments, he took his seat amidst the applause of his classmates.
 
 "You can sit next to Yu Heye. Heye, remember to lend your textbook to the new student during class."
 
 "Ah~ okay, teacher."
 
-Yan Jingxing sits down next to the smiling girl.
+Yan Jingxing sat down next to the smiling girl.
 
 ...
 
-The next class is math.
+The first class after that was math.
 
-Half of Yan Jingxing's mind is on the lesson, while the other half is on the girl sitting in the back row.
+Half of Yan Jingxing's mind was on the lesson, while the other half was on the girl sitting in the back row.
 
-After confirming that he can follow the lessons here, he breathes a sigh of relief, all his remaining attention is on the girl.
+After confirming that he could follow the lessons here, and exhaling in relief, all his remaining attention was on the girl.
 
-His deskmate is actually quite interested in him, constantly asking him questions about where he comes from and what city life is like. Yan Jingxing gives brief and vague answers, waiting until the bell rings to immediately get up and walk towards the back.
+His deskmate was actually quite interested in him, constantly sneaking questions about where he came from and what city life was like. Yan Jingxing gave brief and vague answers, waiting until the bell rang to immediately get up and walk towards the back.
 
-...Is he coming across as too eager?
+...Was he coming across as too eager?
 
-But it doesn't matter much, after all, he is genuinely curious about her and has many questions to ask.
+But it didn't matter much, after all, he was genuinely curious about her and had many questions to ask.
 
-What Yan Jingxing doesn't expect is--
+What Yan Jingxing didn't expect was--
 
-The girl's long, slightly curly bangs block her face, making it impossible to see her expression. The moment she notices Yan Jingxing approaching, she jumps up like a startled rabbit and scurries away to another spot.
+The girl's long, slightly curly bangs blocked her face, making it impossible to see her expression. The moment she noticed Yan Jingxing approaching, she jumped up like a startled rabbit and scurried away to another spot.
 
 "Hey, wait..."
 
-Before he can even call out to her, the girl's figure disappears through the back door of the classroom, leaving him looking completely lost.
+Before he could even call out to her, the girl's figure had disappeared through the back door of the classroom, leaving him looking completely lost.
 
 ...
 
-In short, she's a bit different from what he imagined.
+To put it simply, she's a bit different from what I imagined.
 
-Yan Jingxing returns to his seat and wraps his arms around himself, deep in thought.
+Yan Jingxing returned to his seat and wrapped his arms around himself, deep in thought.
 
-Although he has only seen her once, the youthful vigor that radiates from her is truly impressive and not just for show.
+Although he had only seen her once, the youthful vigor that radiated from her was truly impressive and not just for show.
 
-However, at school, she gives off a quiet and reserved vibe...
+However, in school, she gave off a quiet and reserved vibe...
 
-And why is she avoiding me?
+And why was she avoiding him?
 
-Some classmates notice the awkwardness and ask with a smile,
+Some classmates noticed the minor awkwardness and asked with a smile,
 
 "Are you looking for Ji Chunzao? Did you know her before?"
 
-Ji Chunzao... That's her name. Yan Jingxing silently notes it down and nods in response.
+Ji Chunzao... That was her name. Yan Jingxing silently noted it down and nodded in response.
 
 "I saw her on the road coming here. We only met once, so we don't really know each other. But did she try to avoid me just now?"
 
-"Well, don't take it too seriously. She's a bit... I don't know how to describe it... strange."
+"Well, don't take it too seriously. She's a bit... I don't know how to describe it... a bit strange."
 
-After hearing the name "Ji Chunzao", classmates who are seated nearby also come over to join in the conversation.
+After hearing the name "Ji Chunzao", classmates who were seated nearby also came over to join in the conversation.
 
 "Some people even think she's not normal in the head."
 
@@ -188,65 +186,65 @@ After hearing the name "Ji Chunzao", classmates who are seated nearby also come 
 
 "That's because you haven't been exposed to her before. At first, she was quite enthusiastic, but after hearing her talk about 'water monsters', 'aliens', and 'UFOs' every day, everyone got fed up with her and started to keep their distance. She only became more withdrawn after that."
 
-As his classmates chat excitedly, Yan Jingxing realizes that Ji Chunzao seems to be an outsider in the collective of Class 1, Grade 2.
+As his classmates chatted excitedly, Yan Jingxing realized that Ji Chunzao seemed to be an outsider in the collective of Class 1, Grade 2.
 
-Even though he doesn't know her well, he can sense a unique temperament in the girl; however, this also makes her the center of attention in a way, so everyone has something to say about "Ji Chunzao".
+Even though he didn't know her well, he could sense a unique气质in the girl; however, this also made her the center of attention in a way, so everyone had something to say about "Ji Chunzao".
 
-As they continue chatting, everyone starts to show more interest in the new student, and Yan Jingxing, who clearly isn't someone who stands out, smiles and responds to their questions, memorizing their names one by one.
+As they continued chatting, everyone started to show more interest in the new student, and Yan Jingxing, who clearly wasn't someone who stood out, smiled and responded to their questions, memorizing their names one by one.
 
-After joining a new collective, it often takes a "turning point" to truly blend in, and that turning point is now.
+After joining a new collective, it often takes a "turning point" to truly blend in, and that turning point was now.
 
-However, as he chats enthusiastically with the others, Yan Jingxing's gaze occasionally strays towards the empty seat in the back row.
+However, as he chatted enthusiastically with the others, Yan Jingxing's gaze occasionally strayed towards the empty seat in the back row.
 
 ...
 
-The Baiquan[^Baiquan] Town Experimental Middle School has two main buildings. One is the teaching building, which houses classrooms and teaching offices, and it is noisy during breaks. The other is used for other functions, with offices, labs, and a library, and it is usually quiet, whose staircase leading to the rooftop is often unlocked.
+The Baiquan[^Baiquan] Town Experimental Middle School has two main buildings. One is the teaching building where classrooms and teaching offices are located, and it is noisy during breaks. The other is used for other functions, with offices, labs, and a library, and it is usually quiet.
 
-Ji Chunzao runs out of the classroom, walks all the way to the roof.
+The staircase leading to the rooftop is often unlocked. Ji Chunzao ran out of the classroom, walked all the way to the roof.
 
-As she passes through the office building, the girl walks a bit furtively; but when she arrives at her destination, she stands up straight, with a hint of a smile on her lips, and confidently walks around to the back of the water tower.
+When passing through the office building, the girl walked a bit furtively; but when she arrived at her destination, she stood up straight, with a hint of a smile on her lips, and walked confidently around to the back of the water tower.
 
-There, in a space deliberately blocked off with brick walls on three sides, is a makeshift "base" with a woven paper mat, plastic bags used for trash, stacked newspapers, a rain umbrella, a raincoat.
+There, in a space deliberately blocked off with brick walls on three sides, was a makeshift "base" with a woven paper mat, plastic bags used for trash, stacked newspapers, rain umbrellas, and raincoats.
 
-What is most notable is the neat stack of magazines and books with titles about UFOs, aliens, the Loch Ness monster, and the savages at Shennongjia, as well as various editions of "Unsolved Mysteries of the World".
+What was most notable was the neat stack of magazines and books with titles about UFOs, aliens, the Loch Ness monster, and the Yeren of Shennongjia, as well as various editions of "Unsolved Mysteries of the World".
 
-In this unnoticed corner of the campus, Ji Chunzao has built a small, temporary "secret base" that belongs to her alone.
+In this unnoticed corner of the campus, Ji Chunzao had built a small, temporary "secret base" that belonged to her alone.
 
-The long-haired girl sits by the wall and picks up a copy of "UFO Exploration" to flip through.
+The long-haired girl sat by the wall and picked up a copy of "UFO Exploration" to flip through.
 
-At this moment, in this place where she is alone, Ji Chunzao seems to relax completely, her posture and expression lazy.
+At this moment, in this place where she was alone, Ji Chunzao seemed to relax completely, her posture and expression lazy.
 
-Golden sunlight like feather-light passes through the gaps between the stainless steel bars next to the water tower and lands on the blue and white middle school uniform, the slightly faded sneakers, and the yellowed pages...
+Golden sunlight like feather-light passed through the gaps between the stainless steel bars next to the water tower and landed on the blue and white middle school uniform, the slightly faded sneakers, and the yellowed pages...
 
-When it silently lands on the bright face of the fourteen-year-old girl, her snow-white skin seems transparent and glistens with a luster.
+When it silently landed on the bright face of the fourteen-year-old girl, her snow-white skin seemed transparent and glistened with a润泽luster.
 
-Ji Chunzao holds a magazine in her hand that looks like it has been flipped through countless times. The cover is starting to come unstuck, but she reads it with great interest.
+The magazine in Ji Chunzao's hand looked like it had been flipped through countless times; the cover was even starting to come unstuck, but she still read it with great interest.
 
-"Ah, this UFO...! It's similar to what I see in my dreams..."
+"Ah, this UFO...! It's similar to what I saw in my dream..."
 
-As she looks, she suddenly points at an illustration and exclaims, as if discovering a previously unnoticed detail, muttering incoherent words that no one could understand.
+She exclaimed suddenly, pointing at an illustration and speaking to herself in words no one else could understand.
 
-Unfortunately, all the things in her dreams are in black and white, so she cannot distinguish colors. The girl thinks with a bit of regret.
+Unfortunately, all the things in her dreams were in black and white, so she couldn't分辨颜色distinguish colors. The girl thought with a bit of regret.
 
-The bell rings for class, but Ji Chunzao does not get up.
+The bell rang for class, but Ji Chunzao didn't get up.
 
-She knows that the next class is an activity period and she does not have to go back to the classroom.
+She knew the next class was an activity period and she didn't have to go back to the classroom.
 
-Anyway, even if she stays in the classroom, there is nothing for her to do. She will just sit alone in the corner daydreaming and watching others have fun.
+Anyway, even if she stayed in the classroom, there was nothing for her to do. She would just sit alone in the corner daydreaming and watching others have fun.
 
 ...
 
 "Hey, isn't this 'UFO Exploration'?"
 
-A voice suddenly speaks behind her.
+A voice suddenly spoke from behind her.
 
 "Waaah!"
 
-The unexpected greeting startles Ji Chunzao, and her entire body goes stiff.
+The unexpected greeting startled Ji Chunzao, and her entire body went stiff.
 
-It isn't until she hears footsteps approaching that she slowly turns her neck like a robot.
+It wasn't until she heard footsteps approaching that she slowly turned her neck like a robot.
 
-What she sees is the face of the transfer student.
+What she saw was the face of the transfer student.
 
 [^Yan]: Yan Jingxing’s original Chinese name is 燕景行. The "燕" means swallow.
 

@@ -1,321 +1,319 @@
 # Chapter 1: Mermaid on the Highway
 
-The Summer of 2005, Yan Jingxing returns to his hometown with his uncle.
+In the summer of 2005, Yan Jingxing returned to his hometown with his uncle.
 
-The place is called Baiyue Town nestling against the green mountains and facing the sea. With a harbor and fishing village along the shore, it is a typical seaside town.
+The place was called Baiyue Town, backed by green mountains and facing the sea, with a port and fishing village along the coast. It was a typical seaside town.
 
-Baiyue Town is not far from Jinjiang City. The drive from the city center takes about three and a half hours, with buses and coaches traveling back and forth.
+Baiyue Town wasn't far from Jinjiang City. If you drove from the city center, the journey would take about three and a half hours, and there were buses and coaches running back and forth.
 
-If it is just a visit to family or a summer retreat, he might feel quite happy. Occasionally getting away from the city, enjoying the leisurely rural life, and having some stories to share with classmates upon return.
+If he had only gone back to visit relatives or escape the heat for a while, he probably would have been happy. He could occasionally get away from the city and enjoy a悠闲的乡野生活, and then he could share some stories with his classmates.
 
-Unfortunately, Yan Jingxing is actually settling there. His uncle has already found a new school for him to transfer to, and he leaves in a hurry, not even having time to bid farewell to his high school friends, leaving a hint of resentment in his heart.
+Unfortunately, Yan Jingxing had actually gone there to settle down. His uncle had already found a school for him to transfer to, and he had left in such a hurry that he didn't even have time to say goodbye to his middle school friends. He couldn't help but feel a little resentful.
 
-Yan Jingxing's parents live abroad throughout the year, and he hasn't seen them for an average of one or two years since the fourth grade. Since then, his uncle Yan Yongzhi has been taking care of him.
+Yan Jingxing's parents lived abroad all year round and saw each other only once or twice a year. Since he was in the fourth grade of elementary school, he had been living with his uncle, Yan Yongzhi.
 
-Currently, due to a job transfer, Yan Yongzhi moves from a city school to a town, and Yan Jingxing has to go with him.
+Currently, due to a job transfer, Yan Yongzhi moved from a city school to a town, and Yan Jingxing had to go with him.
 
 ...
 
-The car smoothly travels on the highway, and the cabin experiences a rhythmic, slight vibration.
+The car was driving smoothly on the highway, and the inside of the carriage trembled slightly and rhythmically.
 
-The man sitting in the driver's seat holds the steering wheel, looking relaxed. Old songs from Hong Kong and Taiwan play on the radio, and he hums along off-key. The warm breeze of the summer, slightly intoxicated, rushes in through the open windows.
+The man sitting in the driver's seat held the steering wheel and looked relaxed. The radio was playing old songs from Hong Kong and Taiwan, and he hummed along softly and out of tune. The warm summer breeze blew into the open car window with a "whooshing" sound;
 
-The teenager sitting in the passenger seat, supporting his chin with one hand, lazily gazes at the monotonous highway scenery speeding by.
+The teenager sitting in the co-pilot's seat rested his chin on one hand and looked bored as he watched the monotonous highway scenery fly by outside the window.
 
-The silence, without anyone speaking, lasts for a while. Yan Jingxing can't help but bring up the topic he has mentioned several times before.
+After a period of silence without anyone speaking, Yan Jingxing couldn't help but bring up the topic that he had mentioned several times before.
 
-"Uncle, I've said before, I could have stayed in the city. I can take care of myself. When you used to work overtime, I was always..."
+"Uncle, I've actually said before that I could stay in the city. I can take care of myself. When you were working overtime, I wasn't..."
 
-"That was temporary, and it's different. You're still a minor. How can you not be with your guardian?"
+"That was temporary, it's not the same. You're still a minor, how can you not be with your guardian?"
 
-Yan Yongzhi taps the steering wheel with his fingers, observing the rearview mirror while comforting him.
+Yan Yongzhi's finger tapped on the steering wheel as he observed the rearview mirror and comforted him casually:
 
-"Don't be too upset. There are fun things in the city, and there are also beautiful sceneries in the countryside. Baiyue Town is where your dad and I grew up. There are quite a few interesting things in the town."
+"You don't have to be too sad. There are pleasures in the city and beauty in the countryside. Baiyue Town is where your dad and I grew up as children, and there are actually quite a few fun things to do in the town."
 
 "Really? Like what?"
 
-"Well, let me think. I remember when we were there, during festivals, there were markets and temple fairs. I don't know if they still have them. Because it's close to the seaside, you can go to the shore anytime to fish or swim."
+"Well, let me think about it. I remember when we were kids, there were markets and temple fairs in the town during festivals. I don't know if they still exist now. Because it's close to the sea, you can always run down to the shore to play, fish, swim, and so on."
 
 "What else?"
 
-"There are a few islands near the town. Some are tourist attractions, and some are places for burning incense and praying. Someone can take a ferry on weekends. When I have time, I'll take you there. Your dad and I used to sneak on the ferry without telling the adults. While went to the island, we could play for a whole day, and there was a time when we almost couldn't make it back...."
+"Well, there are several islands near the town. Some of them are tourist attractions, while others are places for worshipping Buddha. You can take the ferry to them on weekends, and when I have time, I'll take you around the island. When your dad and I were young, we often sneaked onto the ferry and spent the whole day on the island, and sometimes we almost couldn't come back..."
 
-At this point, Yan Yongzhi suddenly realizes that such stories shouldn't be told to a child, a bad example, and stops talking.
+At this point, Uncle Yan suddenly realized that he shouldn't say such things to a child because it sets a bad example, so he stopped talking.
 
-"Sounds pretty good. Will you go with me?"
+"That sounds pretty good. Will you come with me, Uncle?"
 
-"Of course. I said, when I have time."
+"Of course. I said when I have time."
 
 "When will you have time?"
 
-"Well..."
+"Well...," Uncle Yan hesitated for a moment before telling the truth. "I just started my new job, so there will definitely be a period of time when I'm busy. I haven't even prepared my lesson plans yet."
 
-Yan Yongzhi hesitates for a moment and decides to tell the truth.
+"That's pretty much a waste of time."
 
-"I just started my new job, and I'll be busy for a while. I haven't even prepared my teaching materials."
+Yan Jingxing pouted and leaned back lazily.
 
-"Isn't that the same as saying nothing?"
+"You're not the only one who just transferred schools. Go and get to know your new classmates and make friends with them. In addition, you haven't studied much in a while, so don't let your grades slip. You can think about playing later..."
 
-Yan Jingxing pouts, pulls down the seat armrest, and leans back lazily.
+He no longer listened to his uncle's babbling as he curled up in his seat. He had wanted to sleep all the way to their destination, but he couldn't seem to fall asleep, so he continued to stare out the window at the scenery outside.
 
-"You just transferred schools. Go get to know your new classmates, build good relationships with them. Also, I haven't seen you study during this time. Don't let your grades drop. We can discuss playing later...."
+However, as he gradually emptied his mind, sleepiness naturally came over him. His upper and lower eyelids began to fight each other.
 
-Yan Yongzhi's nagging makes him stop listening. The teenager sighs, reclines in his seat, and continues to stare at the scenery outside the window.
+Meanwhile, ethereal singing faintly drifted from the distance. Graceful and ethereal, as clear as a mountain lake, it belonged to the pure and melodious voice of a girl.
 
-However, as he gradually empties his mind, drowsiness naturally surges into his mind. His upper and lower eyelids begin to fight.
-
-At the same time, a faint, ethereal singing voice comes from a distance. Beautiful and clear, like the clear lake in the mountains, the voice belongs to a maiden.
-
-In a daze, he thinks it is the sound from the radio. Yan Jingxing quickly realizes that the voice is sometimes near and sometimes far, and it obviously don't come from beside him.
+In a haze, he initially thought it was the sound coming from a radio. Soon, Yan Jingxing realized that the voice was sometimes distant and sometimes near, clearly not originating from his surroundings.
 
 But... singing?
 
-This is in a car on a highway. Where does the singing come from?
+This was inside a car traveling on a highway. Where could the singing possibly come from?
 
-Suddenly, his entire consciousness wakes up, and he subconsciously widens his eyes, looking into the distance.
+Suddenly, his entire consciousness woke up, and he subconsciously widened his eyes, gazing into the distance.
 
-What is that?
+—What was that?
 
-It seems like a person...
+It seemed like a person...
 
-He thinks he might have seen it wrong.
+He thought he might have been mistaken.
 
-The scenery around the highway flashes at the edge of his vision. Beside the guardrail is a cliff, and below the cliff is the blue sea, with waves constantly rolling and splashing countless foam on the dark rocks.
+The scenery around the highway rapidly passed by the edge of his vision. Beside the guardrail was a cliff, and beneath the cliff lay the azure sea, with waves of white foam rising and breaking into countless water splashes on the dark rocks.
 
-He grabs the seatbelt on him, turning his head back to look.
+He grabbed the seatbelt on him, making an effort to turn his head and look back.
 
-—There is a slender figure, as if from the depths of the sea, sitting quietly on a giant reef.
+—There was a slender figure, seemingly from the depths of the sea, sitting quietly on a giant reef.
 
-With her back against the sky, she has long, seaweed-like hair that shimmered with golden brilliance in the dazzling sunlight.
+The figure leaned against the sky, with long hair resembling seaweed, and the brilliant sunlight shining on her, sparkling like fragmented gold.
 
-She is singing an unknown ancient ballad, her clear and melodious voice lingering in the airspace above the highway.
+She was singing an unknown ancient ballad, her clear and pleasant voice lingering in the air above the highway.
 
-In a blink of an eye, the car has quickly left the original place, and the figure on the reef disappears from view.
+In a fleeting glance, the car had already swiftly left its original location, and the figure on the reef disappeared from sight.
 
-However, he can't help but stare with wide eyes, feeling that this scene is unforgettable.
+However, he couldn't help but widen his eyes, feeling that this scene was unforgettable.
 
-Truly a wonderful sight.
+It was such a marvelous sight.
 
-That person, simply... like a mermaid from a fairy tale...
+That person was just like the mermaids in fairy tales...
 
-"Uncle, did you hear that just now?"
+"Uncle, did you hear that sound just now?"
 
-He turns around, unable to resist asking.
+He turned around, unable to resist asking.
 
 "Huh? What sound?"
 
-Yan Yongzhi, who is humming along with the music on the radio, seemed completely unaware of what had just happened.
+His uncle, who was humming along with the music on the radio, seemed to have completely overlooked what had just happened.
 
-"Singing, someone was singing."
+"The singing, someone was singing."
 
 "Singing?"
 
-Yan Yongzhi turns off the radio, listens carefully for a while, and says casually, "I didn't hear anything. What's wrong?"
+Yan Yongzhi reached out to turn off the radio and listened carefully for a moment.
 
-"...Forget it, it's nothing."
+"I didn't hear anything. What's wrong?"
 
-Although he said "forget it," his heart can't help but beat uncontrollably.
+"...Never mind, it's nothing."
 
-The scene just now is deeply imprinted in his mind, making Yan Jingxing inexplicably impulsive.
+Even though he said "never mind," his heart was still pounding uncontrollably.
 
-At this moment, he sees some buildings not far from the front of the highway.
+The scene from just now was deeply imprinted in his mind, causing an inexplicable surge of excitement in Yan Jingxing's innermost being.
 
-"Uncle, I see a rest area ahead?"
+At this moment, he saw a building not far ahead on the highway.
 
-"Ah... there is. What's wrong?"
+"Uncle, I think there's a rest area up ahead."
 
-"I want to pee."
+"Ah... yeah. What's the matter?"
 
-"Is it urgent?"
+"I need to pee."
 
-"Yeah, can't hold it."
+"Urgent?"
+
+"Yeah, can't hold it anymore."
 
 "Alright, I'll stop here for a while."
 
-The car slowly enters the lane leading to the rest area.
+The car slowly entered the lane leading to the rest area from the highway.
 
-"I'll go smoke a cigarette, you can go if you want."
+"I'll smoke a cigarette. If you want to go, go ahead."
 
-Yan Yongzhi turns off the engine, props open the car door, and is about to say a few words when he sees Yan Jingxing has already jumped out of the car and runs towards the sea.
+Yan Yongzhi turned off the engine, propped open the car door, and was about to say a few more words when he saw Yan Jingxing impatiently jumping out of the car and running towards the direction of the sea.
 
-"We're almost in the town, don't go too far!"
+"You're about to reach the town. Don't run too far!"
 
-"Okay!"
+"Okay—!"
 
-Without looking back, the teenager shouts in response.
+Without looking back, the young man shouted in response.
 
 "This kid..."
 
-Yan Yongzhi lits a cigarette, looking puzzled as he watches his nephew's figure.
+Yan Yongzhi lit a cigarette with a lighter, looking at his nephew's back with some confusion.
 
-"He was just sulking earlier, and now he's excited."
+"He was just moping around a moment ago. Why is he suddenly so excited?"
 
 ...
 
-"Hoo... hoo..."
+"Hu... hu..."
 
-Like driven by a strong premonition, he can't cool down his fervent thoughts.
+As if driven by a strong premonition, he couldn't cool down his boiling thoughts.
 
-Amidst the chaotic thoughts, Yan Jingxing has already left the rest stop, stretching his legs and running on the overgrown slope by the shore.
+Amidst the chaotic thoughts, Yan Jingxing had already left the rest area, spreading his arms and legs, running on the hillside by the shore, overgrown with wild grass.
 
-He can't discern a specific direction, just exerting all his strength to move forward.
+He couldn't distinguish the specific direction, just putting all his strength into moving forward.
 
-The fresh scent emanating from the vegetation mixes with the salty sea breeze brushing against his cheeks. Soft soil underfoot resembles a vast, thick carpet extending endlessly.
+The fresh scent emitted by the vegetation mixed with the salty sea breeze brushing across his cheeks; beneath his feet was soft soil, like a vast and thick carpet extending endlessly.
 
-The sun hangs high, generously casting intense radiance on his hair and shoulders. As Yan Jingxing runs, he feels the heat throughout his body, accompanied by a dizzying sensation.
+The high-hanging sun generously poured down intense radiance, falling on his hair and shoulders. As Yan Jingxing ran, feeling the heat all over his body, he also experienced a sensation of dizziness.
 
-Before long, he begins to feel strained, and sweat streams down his forehead.
+Before long, he began to feel exhausted, sweat dripping down from his forehead.
 
-After exerting himself in this mad dash, minutes passes, and the young man's steps gradually slows. Finally, he is exhausted, leaning on his knees and panting heavily.
+After exerting all his strength in a mad dash, in what seemed like minutes, the young man's steps gradually slowed. Finally, he was exhausted, supporting his knees and panting heavily.
 
-While taking deep breaths, Yan Jingxing turns his head, realizing that the rest stop is nowhere in sight.
+While taking deep breaths, Yan Jingxing turned his head, and the rest area was nowhere to be seen.
 
-Beside him is a winding road built along the mountainside, and vehicles speed by occasionally.
+Next to him was the winding road built along the mountainside, with occasional cars speeding by.
 
-"What am I even doing..."
+"What am I doing..."
 
-In fact, the brief glimpse he just has is not enough for him to determine the exact location of the "mermaid" and the reef she was on. Considering the speed of the car, perhaps the distance between her and himself is even greater than he imagines.
+In fact, that fleeting glimpse earlier wasn't enough for him to determine the specific location of the "mermaid" and the reef. At the speed of the car, perhaps the distance between her and him was even farther than he imagined.
 
-Straightening his posture, he places his hands over his forehead like a visor and walks to the edge of the cliff to gaze into the distance:
+He straightened his body, shaded his forehead with his hand, walked to the edge of the cliff, and gazed into the distance:
 
-The winding road, like a serpent, towering and rugged mountains, and the boundless sea in the distance.
+The serpentine road, towering and steep mountains, and the vast sea stretching as far as the eye could see at the end of the field of vision.
 
-At the horizon is the sight of the "meeting of sea and sky" where everything seems to blend into a vast expanse of white.
+At the horizon was the "line between sea and sky," where everything met, a vast expanse of white.
 
-Apart from that, there is nothing else.
+Apart from that, there was nothing.
 
-The incessant sound of the sea tide echoes in his ears, with white waves constantly rolling onto the shore, leaving moist traces on the muddy ground.
+The continuous sound of the sea tide echoed in his ears, and white waves kept rolling onto the shore, leaving moist traces on the muddy bank.
 
-Yan Jingxing sighs, putting down his hands.
+Yan Jingxing let out a sigh, putting his hand down.
 
-"Better go back, or I'll get scolded."
+"Let's go back; otherwise, I'll get scolded."
 
-As he is about to turn back, at that moment—
+He was about to turn back, but at that moment—
 
 "Drip, drip..."
 
-He heard faint footsteps behind him, along with the sound of droplets falling.
+He heard faint footsteps behind him, and the sound of water droplets.
 
-Yan Jingxing turns abruptly, only to see a girl standing behind him. He hasn't noticed her approach at all.
+Yan Jingxing suddenly turned his head and saw a girl standing behind him. He hadn't noticed her approach at all.
 
-He is a bit startled.
+He was a bit startled.
 
-She looks like she has just climbed out of the sea, her slender body wrapped in a deep blue one-piece swimsuit. Wet hair, resembling seaweed, flows down to her waist, slightly curling at the ends.
+She looked like she had just climbed out of the sea, slender and frail beneath the deep blue one-piece swimsuit. Her wet hair, long like seaweed, hung down to her waist and curled slightly.
 
-The girl's bangs are quite impressive, long enough to cover her eyes. Despite that, Yan Jingxing can still feel her gaze piercing through the cover of her hair, staring at him intently.
+The girl's bangs were impressive, long enough to cover her eyes. Despite that, Yan Jingxing could still feel her gaze piercing through the cover of her hair, staring at him intently.
 
-Is this the person he saw just now?
+This person... was she the same as the one he had just seen... that silhouette?
 
-Although there is no evidence, Yan Jingxing already believes in his judgment.
+Although there was no evidence, Yan Jingxing had already believed in his own judgment.
 
-He can't help but swallow nervously.
+He couldn't help but swallow his saliva.
 
-Compared to the inexplicable excitement he feels when he hears the singing in the car, he now feels a bit scared, and even the sunlight falling on him at this moment doesn't seem so warm.
+Compared to the inexplicable excitement he felt when he heard the song in the car, he now suddenly felt a bit scared, and even the sunlight falling on him at this moment didn't seem so warm.
 
 Why isn't she saying anything?
 
-Yan Jingxing confronts her, staring at the silent girl, feeling uncomfortable all over.
+Yan Jingxing confronted her, staring at her silently, feeling uncomfortable all over.
 
 Why is she staring at me like this?
 
-Could it be... she's not a mermaid at all but a drowned ghost, climbing ashore to seek revenge?
+Could it be... she's not a mermaid at all, but a drowned ghost, climbing ashore to seek revenge?
 
-No, there are also those monsters in myths that lure sailors with their songs, causing shipwrecks. They look like mermaids. What are they called again...
+No, speaking of which, there are those monsters in myths that attract sailors with their songs, causing ships to run aground and sink. They look like mermaids, aren't they from some kind of mythology...
 
-Yan Jingxing's mind is filled with chaotic thoughts as he can't help but take a step back.
+Yan Jingxing was lost in his wild thoughts and couldn't help taking a step back.
 
-"Um... excuse me, are you...?"
+"You... um, excuse me, who are you...?"
 
-He gathers his courage and stutters out a question.
+He mustered the courage to ask stutteringly.
 
-The girl in the swimsuit doesn't answer.
+The girl in the swimsuit did not answer.
 
-Cold water droplets keep sliding down from her hair and body, spreading wet marks on the ground.
+Cold droplets dripped continuously from her hair and body, spreading the wet marks on the ground.
 
-At this moment, she seems to realize that it's inconvenient to be observed like this, so she uses her fingers to flip her hair, allowing Yan Jingxing to see her face clearly.
+At this moment, she seemed to realize that it was inconvenient to be observed like this, so she used her fingers to lift her hair, allowing Yan Jingxing to see her face clearly.
 
-Perhaps due to being in the water for a long time, the girl's skin appears pale. However...
+Perhaps due to being in the water for a long time, the girl's skin appeared pale. However...
 
-She's really pretty, he thinks.
+She looks really good, he thought.
 
-Like the actresses on TV whose skin glows with radiance, now appearing in front of him in real life.
+Like the actresses who glow on television advertisements, she was now a real person in front of him.
 
-Compared to the people on the screen, her face clearly retains a bit of youthful innocence, making her look around his age.
+Compared to the people on the screen, she obviously had a hint of youthful innocence on her face, appearing to be close to his age.
 
-The girl's eyes like black crystal balls reflect his image, and her thin lips lack a bit of color, trembling slightly.
+The girl's eyes reflected his figure like crystal balls of ink, and her thin lips lacked a hint of color, slightly trembling.
 
-Yan Jingxing can't help but swallow again.
+Yan Jingxing couldn't help but swallow his saliva again.
 
-For some reason, seeing her face, his emotions seem to... become even more nervous.
+For some reason, his emotions seemed to... become more tense after seeing her face.
 
-At this moment, the corner of the girl's lips suddenly lifts into a brilliant smile.
+At this moment, the corner of the girl's lips suddenly lifted into a brilliant smile.
 
-Then, she takes steps toward him.
+Then, she stepped toward him.
 
-"W-wait, wait..."
+"Wait, wait..."
 
-He doesn't react in time, and she is already in front of him, grabbing his hand and forcefully stuffing something into his palm.
+Before he could react, she was already in front of him, grabbing his hand and forcibly stuffing something into his palm.
 
 "What is this..."
 
-Yan Jingxing is surprised and quickly opens his hand.
+Yan Jingxing was surprised, quickly opening his hand.
 
-In the palm of his hand lies several seashells and pebbles, each displaying beautiful colors or patterns.
+Several seashells and pebbles lay quietly in the palm, all adorned with beautiful colors or patterns.
 
-"Gifts."
+"A gift."
 
-The girl speaks. Her voice is like clear springwater, with a tone identical to the clear and beautiful song he hears in the car earlier. This confirms to Yan Jingxing that she is indeed the "mermaid" he saw on the reef.
+The girl spoke. Her voice was as clear as rippling water, with the same clear and wonderful tone as the song he heard in the car. This confirmed Yan Jingxing's belief that she was the "mermaid" he had seen on the reef.
 
-"Gifts?"
+"A gift?"
 
-He realizes that, besides dumbly repeating her words, he can't do anything.
+He found himself unable to do anything other than repeat what she said, looking completely foolish.
 
 "Yeah. I brought them from the sea."
 
-"Are you... a mermaid?"
+"You... are you a mermaid?"
 
-"No, um..."
+"No, well..."
 
-The long-haired girl seems to remember something and answers him with a smile.
+The long-haired girl seemed to recall something and answered him with a smile.
 
-"I'm a green-haired water monster."
+"I'm the green-haired water monster."
 
 "Huh?"
 
-"Someday, a water monster will crawl out of the deep sea onto the shore."
+"One day, a water monster will crawl ashore from the depths of the sea."
 
 "..."
 
-Uh, what does that mean? Yan Jingxing is completely puzzled.
+Uh, what does that mean? Yan Jingxing was utterly confused.
 
-"By the way, are you a tourist? Where are you going? To Baiyue Town? Just passing through? Planning to stay there?."
+"By the way, are you a tourist? Where are you going? Are you going to Baiyue Town? Just passing through? Do you plan to stay there?"
 
-She has no intention of explaining, firing off a series of questions like a machine gun.
+She showed no intention of explaining, firing off a series of questions like a string of firecrackers.
 
-"Y-yes, I'm going to Baiyue Town..."
+"Uh, yes, I'm going to Baiyue Town..."
 
-"That's great. Baiyue Town is a beautiful place, although there's nothing special... Well, that's it. Consider these shells as a souvenir for your trip and take them away."
+"That's great. Baiyue Town is a beautiful place, although there's nothing special... Well, that's it. Consider this seashell as a souvenir for your trip."
 
-Yan Jingxing completely doesn't understand what she is saying, but by now, she is ready to leave.
+Yan Jingxing completely couldn't understand her words, but she was already preparing to leave.
 
-The girl turns around, her wet hair flicking water droplets that sparkle in the sunlight. She takes big strides toward the sea.
+The girl turned around, shaking her wet hair, and under the sunlight, it sparkled. She took big strides toward the sea.
 
-"W-wait, wait..."
+"Wait, wait..."
 
-He doesn't have time to stop her, only to see her effortlessly leap over the reef and then—
+Before he could shout to stop her, she had already made a few nimble jumps, flipping over the reef. Then—
 
 "..."
 
-She jumps off the edge of the cliff.
+She jumped off the cliff edge like that.
 
-Yan Jingxing quickly runs over, grabbing a nearby stone for support. Carefully leaning over, he looks down.
+Yan Jingxing hurriedly ran over, grabbing a nearby stone for support, cautiously leaning over and looking down.
 
-A figure emerges from the water, swimming forward. The slender silhouette moves like a real fish, disappearing into the splashing waves like scattered pearls.
+A figure emerged from the water and swam forward. The slender figure moved as agile as a real fish and soon disappeared into the splashing waves.
 
-Standing at the edge of the cliff, Yan Jingxing stands still for a while, his mind filled with various thoughts. After a long time, he remembers that his uncle still waits at the rest stop. He secretly exclaims that it is bad, hurriedly retracing his steps along the same path.
+Yan Jingxing stood on the edge of the cliff, staring blankly, his mind filled with various thoughts. After a long while, he remembered that his uncle was still waiting for him at the rest area, silently cursing, he quickly ran back along the same path.
 
-However, the image of the mermaid singing on the cliff leaves an indelible impression in his heart. Her figure is like a storm, sweeping through the fourteen-year-old boy's heart.
+However, that mermaid who sang on the cliff had already left an indelible impression on his heart like a storm, her figure sweeping through the heart of the fourteen-year-old boy.
 
-This marks his first encounter with the girl named Ji Chunzao.
+—This was his first encounter with the girl named Ji Chunzao.
 
-At that time, he has no idea that their second meeting will come so quickly and unexpectedly.
+At that time, he had no idea that their second encounter would come so quickly and unexpectedly.
