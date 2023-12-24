@@ -2,7 +2,7 @@
 
 The Summer of 2005, Yan Jingxing returns to his hometown with his uncle.
 
-The place is called Baiyue Town, nestled against the green mountains and facing the sea. With a harbor and fishing village along the shore, it is a typical seaside town.
+The place is called Baiyue Town nestling against the green mountains and facing the sea. With a harbor and fishing village along the shore, it is a typical seaside town.
 
 Baiyue Town is not far from Jinjiang City. The drive from the city center takes about three and a half hours, with buses and coaches traveling back and forth.
 
