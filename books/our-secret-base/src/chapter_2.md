@@ -58,7 +58,7 @@ Yan Yongzhi looked at his nephew with a serious expression on his face and could
 
 "Of course."
 
-The uncle left in a hurry, leaving the boy with a backpack, staring at the sign in front of the school that read "Baiyue Town Experimental Middle School," feeling anxious.
+The uncle left in a hurry, leaving the boy with a backpack, staring at High sign in front of the school that read "Baiyue Town Experimental High School," feeling anxious.
 
 As he built up his courage and followed the instructions of the security guard, he found the second-grade office along the stairs.
 
@@ -78,7 +78,7 @@ Yan Jingxing grabbed the backpack strap and nodded.
 
 ...
 
-It seems that every city has a school called Experimental Middle School, and in some places, there are even multiple branches distinguished by numbers. But in a small town like Baiyue, there is only one.
+It seems that every city has a school called Experimental High School, and in some places, there are even multiple branches distinguished by numbers. But in a small town like Baiyue, there is only one.
 
 After the flag-raising ceremony and before the start of the first class, there was a short break. The classroom teacher hadn't arrived yet, and every class in the corridor was noisy. The students sitting in front and back were chatting and laughing, while those sitting side by side were playing or simply leaving their seats to talk with friends.
 
@@ -116,7 +116,7 @@ It was the girl he had encountered at the rest stop in her swimsuit.
 
 She had jumped into the sea and disappeared, so Yan Jingxing had thought he would never see her again, and he felt a bit regretful about that.
 
-Turns out she wasn't a mermaid, but a middle school student just like him...
+Turns out she wasn't a mermaid, but a high school student just like him...
 
 Well, of course, Yan Jingxing thought to himself. He just didn't expect that they would meet again so soon, and even happen to be in the same school and same class.
 
@@ -198,7 +198,7 @@ However, as he chatted enthusiastically with the others, Yan Jingxing's gaze occ
 
 ...
 
-The Baiquan[^Baiquan] Town Experimental Middle School has two main buildings. One is the teaching building where classrooms and teaching offices are located, and it is noisy during breaks. The other is used for other functions, with offices, labs, and a library, and it is usually quiet.
+The Baiquan[^Baiquan] Town Experimental High School has two main buildings. One is the teaching building where classrooms and teaching offices are located, and it is noisy during breaks. The other is used for other functions, with offices, labs, and a library, and it is usually quiet.
 
 The staircase leading to the rooftop is often unlocked. Ji Chunzao ran out of the classroom, walked all the way to the roof.
 
@@ -214,7 +214,7 @@ The long-haired girl sat by the wall and picked up a copy of "UFO Exploration" t
 
 At this moment, in this place where she was alone, Ji Chunzao seemed to relax completely, her posture and expression lazy.
 
-Golden sunlight like feather-light passed through the gaps between the stainless steel bars next to the water tower and landed on the blue and white middle school uniform, the slightly faded sneakers, and the yellowed pages...
+Golden sunlight like feather-light passed through the gaps between the stainless steel bars next to the water tower and landed on the blue and white high school uniform, the slightly faded sneakers, and the yellowed pages...
 
 When it silently landed on the bright face of the fourteen-year-old girl, her snow-white skin seemed transparent and glistened with a润泽luster.
 

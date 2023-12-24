@@ -8,7 +8,7 @@ Baiyue Town wasn't far from Jinjiang City. If you drove from the city center, th
 
 If he had only gone back to visit relatives or escape the heat for a while, he probably would have been happy. He could occasionally get away from the city and enjoy a悠闲的乡野生活, and then he could share some stories with his classmates.
 
-Unfortunately, Yan Jingxing had actually gone there to settle down. His uncle had already found a school for him to transfer to, and he had left in such a hurry that he didn't even have time to say goodbye to his middle school friends. He couldn't help but feel a little resentful.
+Unfortunately, Yan Jingxing had actually gone there to settle down. His uncle had already found a school for him to transfer to, and he had left in such a hurry that he didn't even have time to say goodbye to his high school friends. He couldn't help but feel a little resentful.
 
 Yan Jingxing's parents lived abroad all year round and saw each other only once or twice a year. Since he was in the fourth grade of elementary school, he had been living with his uncle, Yan Yongzhi.
 
@@ -260,11 +260,11 @@ Yan Jingxing was surprised, quickly opening his hand.
 
 Several seashells and pebbles lay quietly in the palm, all adorned with beautiful colors or patterns.
 
-"A gift."
+"Gifts."
 
 The girl spoke. Her voice was as clear as rippling water, with the same clear and wonderful tone as the song he heard in the car. This confirmed Yan Jingxing's belief that she was the "mermaid" he had seen on the reef.
 
-"A gift?"
+"Gifts?"
 
 He found himself unable to do anything other than repeat what she said, looking completely foolish.
 
