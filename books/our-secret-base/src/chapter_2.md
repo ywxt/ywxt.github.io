@@ -96,7 +96,7 @@ The students in their seats were all curious. Then, a boy they had never seen be
 
 "Introduce yourself," the teacher said.
 
-"Hello everyone, I'm Yan Jingxing. I recently moved here from Jinjiang City. Yan is from 'swallow'[^Yan] and Jingxing comes from the phrase 'Gao Shan Yang Zhi, Jing Xing Xing Zhi'[^Gaoshan] in The Book of Songs..."
+"Hello everyone, I'm Yan Jingxing. I recently moved here from Jinjiang City. Yan is 'swallow'[^Yan] and Jingxing comes from the phrase 'Gao Shan Yang Zhi, Jing Xing Xing Zhi'[^Gaoshan] in The Book of Songs..."
 
 Yan Jingxing picked up a piece of chalk and wrote his name on the blackboard. When he turned around, he saw the faces of all his classmates for the first time.
 
@@ -246,7 +246,7 @@ It wasn't until she heard footsteps approaching that she slowly turned her neck 
 
 What she saw was the face of the transfer student.
 
-[^Yan]: Yan Jingxing’s original Chinese name is 燕景行. The "燕" means swallow.
+[^Yan]: Yan Jingxing’s original Chinese name is 燕景行. 燕-Yan, 景-Jing and 行-Xing. The "燕" can means swallow(燕子).
 
 [^Gaoshan]: "高山仰止，景行行止", Lofty mountains are there for one to admire, and the great way of virtue is there for one to follow, metaphors for admiration for noble moral character. 景行(Jingxing) means the great way of virtue.
 

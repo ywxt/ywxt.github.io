@@ -6,7 +6,7 @@ Seeing the girl before him with her big, round eyes wide open, staring at him wi
 
 I know, she thought. I just heard your introduction in class.
 
-"I'm... Ji Chunzao. Spring's 'Chun', Seaweed's 'Zao'..."
+"I'm... Ji Chunzao[^Chunzao]. 'Chun' is Spring and 'Zao' is Seaweed..."
 
 "Mm, I heard from my classmates."
 
@@ -229,3 +229,5 @@ Yan Jingxing was a bit confused.
 "What's settled? I asked you to show me evidence..."
 
 "—Follow me, let's go find aliens together!"
+
+[^Chunzao]: Her original name is 季春藻. 季-Ji, 春-Chun and 藻-Zao.
