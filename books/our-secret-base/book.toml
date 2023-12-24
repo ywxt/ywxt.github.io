@@ -4,3 +4,5 @@ language = "en"
 multilingual = false
 src = "src"
 title = "Our Secret Base"
+[output.html]
+site-url = "/our-secret-base/"
