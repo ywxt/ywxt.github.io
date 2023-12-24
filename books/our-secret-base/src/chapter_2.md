@@ -246,7 +246,7 @@ It wasn't until she heard footsteps approaching that she slowly turned her neck 
 
 What she saw was the face of the transfer student.
 
-[^Yan]: Yan Jingxing’s original Chinese name is 燕景行. 燕-Yan, 景-Jing and 行-Xing. The "燕" can means swallow(燕子).
+[^Yan]: Yan Jingxing’s original Chinese name is 燕景行. 燕-Yan, 景-Jing and 行-Xing. The "燕" can mean swallow(燕子).
 
 [^Gaoshan]: "高山仰止，景行行止", Lofty mountains are there for one to admire, and the great way of virtue is there for one to follow, metaphors for admiration for noble moral character. 景行(Jingxing) means the great way of virtue.
 
