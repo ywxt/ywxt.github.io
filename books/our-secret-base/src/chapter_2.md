@@ -128,7 +128,7 @@ The girl sitting in the back seemed to notice him at the same time. She looked u
 
 Yan Jingxing, who was distracted by the unexpected reunion, didn't have the heart to say much. After a few random comments, he took his seat amidst the applause of his classmates.
 
-"You can sit next to Yu Heye. Heye, remember to lend your textbook to the new student during class."
+"You can sit next to Yu Heyue. Heyue, remember to lend your textbook to the new student during class."
 
 "Ah~ okay, teacher."
 
