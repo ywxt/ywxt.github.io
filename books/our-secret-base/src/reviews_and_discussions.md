@@ -1,4 +1,4 @@
-# Reviews And Discussions
+# Reviews and Discussions
 
 ## If you have any questions or suggestions regarding the translation, please create a new issue [here](https://github.com/ywxt/ywxt.github.io/issues)
 

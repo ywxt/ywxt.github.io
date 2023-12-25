@@ -4,7 +4,7 @@
 
 [Book Description](./book_description.md)
 
-[Reviews And Discussions](./reviews_and_discussions.md)
+[Reviews and Discussions](./reviews_and_discussions.md)
 
 # Contents
 
