@@ -239,3 +239,57 @@ In the refreshing night breeze blowing towards her, Ji Chunzao patted her cheeks
 "Wait, how do we get out?" he asked, "The gatekeepers probably won't let us out."
 
 "Don"t worry. There's a place near the playground where we can climb out. I'll take you there now."
+
+Taking advantage of the night, the two quickly crossed the playground and arrived at the base of the wall that Ji Chunzao had mentioned.
+
+There was a circle of trees planted next to the school, with branches and leaves flourishing and extending over the wall in some places. Among them, a section of branches drooped down, providing a convenient way for someone to climb up.
+
+Ji Chunzao grabbed the branches and agilely climbed the wall in quick steps, showing a flexibility that seemed unnatural, clearly indicating she was experienced.
+
+Yan Jingxing tugged at the branches a few times to confirm their strength, then stepped on the wall to leverage himself and successfully climbed over.
+
+Next to the wall was the canopy of trees. He raised his arms to shield his face, avoiding being scratched by the branches.
+
+Dim streetlight struggled to penetrate the thick foliage overhead, casting the street outside the wall into a deep and mysterious atmosphere.
+
+He jumped down from the wall, landing on soft fallen leaves and soil.
+
+"By the way, you just moved here recently, right?"
+
+The girl who had landed on the ground stood up, clapped her hands, and turned to say to herself:
+
+"I'm a local, and at the same time I'll show you around the town. Although the shops are closed at night, the scenery is still beautiful."
+
+Her expression was so happy and sincere that Yan Jingxing swallowed the words "Quickly take me to confirm" that had come to his lips.
+
+... Anyway, tonight, he would be able to confirm whether her words were true or false. There was no need to rush.
+
+Yan Jingxing took a deep breath of the fresh night air, suddenly realizing the uniqueness of this evening.
+
+He had always been a good student, never violating the teachers' instructions or the school rules. However, today, he left the school in the late night, about to stroll the streets with a female classmate.
+
+Even Yan Jingxing himself, after coming to his senses, was surprised by his boldness, and this change happened so suddenly, unconsciously.
+
+Just now, the classmate who was the head of the students said that he was "led by Ji Chunzao," and perhaps that was true.
+
+Anyone who knew about it would realize his "fall" because originally only those irredeemable teenagers would do such things.
+
+However, their purpose was so pure that it resembled the naive fantasies of children who had not yet gone to school.
+
+"Then lead the way."
+
+Yan Jingxing shook his head, shaking off those confused thoughts.
+
+Since he had already come out, he might as well continue walking.
+
+"Sure~ Follow me."
+
+Ji Chunzao smiled and crooked her fingers to beckon him, taking the lead to leave this narrow street.
+
+"Don't go too far. We still need to come back."
+
+"Don't worry. I've got it."
+
+Leaving the quiet campus, departing from the tree-lined street, the glass windows of the buildings along the street reflected the cold white moonlight. The dim yellow streetlights spilled over the sidewalk and bus stop signs, while people and cars on the road appeared and disappeared vaguely.
+
+The boy and the girl walked in the night, like strolling in the dim underwater world untouched by sunlight. Shoulder to shoulder, they embarked on the journey to find extraterrestrials.
