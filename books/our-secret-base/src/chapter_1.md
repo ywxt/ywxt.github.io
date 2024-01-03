@@ -6,7 +6,7 @@ The place was called Baiyue Town, backed by green mountains and facing the sea, 
 
 Baiyue Town wasn't far from Jinjiang City. If you drove from the city center, the journey would take about three and a half hours, and there were buses and coaches running back and forth.
 
-If he had only gone back to visit relatives or escape the heat for a while, he probably would have been happy. He could occasionally get away from the city and enjoy a悠闲的乡野生活, and then he could share some stories with his classmates.
+If he had only gone back to visit relatives or escape the heat for a while, he probably would have been happy. He could occasionally get away from the city and enjoy a leisurely rural life, and then he could share some stories with his classmates.
 
 Unfortunately, Yan Jingxing had actually gone there to settle down. His uncle had already found a school for him to transfer to, and he had left in such a hurry that he didn't even have time to say goodbye to his high school friends. He couldn't help but feel a little resentful.
 
