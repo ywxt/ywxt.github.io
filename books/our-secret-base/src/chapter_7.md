@@ -6,11 +6,11 @@ These soft-bodied creatures had semi-transparent and phantom-like bodies. When e
 
 They wriggled their fat bodies, intertwining with each other, forming a disgusting mass. At the front end, resembling a head or a mouthpiece, there was a crude and distorted face composed of three black holes, resembling a dwarf extraterrestrial.
 
-This was the extraterrestrial creature named "Astral Leech" by Ji Chunzao. It couldn't be observed or sensed by ordinary people, as if it were a monster in another dimension.
+This was the extraterrestrial creature named "Ghostly Leech" by Ji Chunzao. It couldn't be observed or sensed by ordinary people, as if it were a monster in another dimension.
 
 Among them, several leeches had already inserted the front end of their mouthpieces into the unfortunate male audience member's head, starting to extract nutrients—namely, brain tissue and marrow.
 
-The astral leeches' bodies moved and expanded, their semi-transparent skin revealing grotesque blood vessels, enjoying their feast.
+The ghostly leeches' bodies moved and expanded, their semi-transparent skin revealing grotesque blood vessels, enjoying their feast.
 
 A scene of real extraterrestrial beings preying on humans, an extremely horrifying image, more shocking than any horror movie...
 
@@ -32,7 +32,7 @@ No, of course she was.
 
 The calm appearance of her sitting in the chair was all an act.
 
-Even though Ji Chunzao didn't lie, and those astral leeches indeed wouldn't chase people, as she had concluded through observation—watching a living person getting their brain eaten right in front of her, how could she not feel afraid?
+Even though Ji Chunzao didn't lie, and those ghostly leeches indeed wouldn't chase people, as she had concluded through observation—watching a living person getting their brain eaten right in front of her, how could she not feel afraid?
 
 It's them...
 
@@ -40,7 +40,7 @@ Ji Chunzao stared fixedly at the floating mass not far away, unable to blink. He
 
 If she saw any tendency of them approaching, she would immediately grab Yan Jingxing and run away. Even if she was misunderstood or not trusted, she must do it.
 
-Unsure whether to consider herself fortunate, the astral leeches, upon appearing, immediately locked onto their target and swarmed towards a middle-aged man in the front row.
+Unsure whether to consider herself fortunate, the ghostly leeches, upon appearing, immediately locked onto their target and swarmed towards a middle-aged man in the front row.
 
 Though she knew this was not very good, Ji Chunzao still breathed a sigh of relief quietly. However, on the other hand, her mood became even more somber.
 
@@ -132,7 +132,7 @@ However, at this moment, the previously continuous and noisy interference sudden
 
 She turned her head and found that the transparent mass of bugs had vanished.
 
-Had the astral leeches left after finishing their meal?
+Had the ghostly leeches left after finishing their meal?
 
 No, it's not the time to think about this now...
 
@@ -182,7 +182,7 @@ Yan Jingxing wiped his mouth and sighed.
 
 Ji Chunzao widened her eyes, seemingly unable to believe her ears. Then she showed a joyful smile, her tone full of excitement.
 
-"Did you see the astral leeches? Now you believe me, right?!"
+"Did you see the ghostly leeches? Now you believe me, right?!"
 
 "Not only that."
 
@@ -196,7 +196,7 @@ Hearing this, the girl shook her head with a pitying look.
 
 I really don't want to be told this!
 
-Yan Jingxing resisted the urge to retort. At this moment, he suddenly realized a problem: the audience in the movie theater didn't see the astronaut, nor did they see the astral leeches. What about Ji Chunzao, who had psychic abilities?
+Yan Jingxing resisted the urge to retort. At this moment, he suddenly realized a problem: the audience in the movie theater didn't see the astronaut, nor did they see the ghostly leeches. What about Ji Chunzao, who had psychic abilities?
 
 "Could it be that you can't see?"
 
