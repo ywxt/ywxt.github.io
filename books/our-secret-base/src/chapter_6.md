@@ -1,4 +1,4 @@
-# Chapter 6:  Ghostly Leech
+# Chapter 6: Ghostly Leech
 
 In the central part of Baiyue Town, there is a large supermarket and the only cinema in the town, making it the liveliest place at night. People who come out for entertainment are usually families or couples, strolling around in twos and threes.
 
