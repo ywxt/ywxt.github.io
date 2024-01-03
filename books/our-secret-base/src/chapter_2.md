@@ -188,7 +188,7 @@ After hearing the name "Ji Chunzao", classmates who were seated nearby also came
 
 As his classmates chatted excitedly, Yan Jingxing realized that Ji Chunzao seemed to be an outsider in the collective of Class 1, Grade 2.
 
-Even though he didn't know her well, he could sense a unique气质in the girl; however, this also made her the center of attention in a way, so everyone had something to say about "Ji Chunzao".
+Even though he didn't know her well, he could sense a unique temperament in the girl; however, this also made her the center of attention in a way, so everyone had something to say about "Ji Chunzao".
 
 As they continued chatting, everyone started to show more interest in the new student, and Yan Jingxing, who clearly wasn't someone who stood out, smiled and responded to their questions, memorizing their names one by one.
 
@@ -206,7 +206,7 @@ When passing through the office building, the girl walked a bit furtively; but w
 
 There, in a space deliberately blocked off with brick walls on three sides, was a makeshift "base" with a woven paper mat, plastic bags used for trash, stacked newspapers, rain umbrellas, and raincoats.
 
-What was most notable was the neat stack of magazines and books with titles about UFOs, aliens, the Loch Ness monster, and the Yeren of Shennongjia, as well as various editions of "Unsolved Mysteries of the World".
+What was most notable was the neat stack of magazines and books with titles about UFOs, aliens, the Loch Ness monster, and wildmen of Shennongjia, as well as various editions of "Unsolved Mysteries of the World".
 
 In this unnoticed corner of the campus, Ji Chunzao had built a small, temporary "secret base" that belonged to her alone.
 
@@ -216,7 +216,7 @@ At this moment, in this place where she was alone, Ji Chunzao seemed to relax co
 
 Golden sunlight like feather-light passed through the gaps between the stainless steel bars next to the water tower and landed on the blue and white high school uniform, the slightly faded sneakers, and the yellowed pages...
 
-When it silently landed on the bright face of the fourteen-year-old girl, her snow-white skin seemed transparent and glistened with a润泽luster.
+When it silently landed on the bright face of the fourteen-year-old girl, her snow-white skin seemed transparent and glistened with a luster.
 
 The magazine in Ji Chunzao's hand looked like it had been flipped through countless times; the cover was even starting to come unstuck, but she still read it with great interest.
 
@@ -224,7 +224,7 @@ The magazine in Ji Chunzao's hand looked like it had been flipped through countl
 
 She exclaimed suddenly, pointing at an illustration and speaking to herself in words no one else could understand.
 
-Unfortunately, all the things in her dreams were in black and white, so she couldn't分辨颜色distinguish colors. The girl thought with a bit of regret.
+Unfortunately, all the things in her dreams were in black and white, so she couldn't distinguish colors. The girl thought with a bit of regret.
 
 The bell rang for class, but Ji Chunzao didn't get up.
 
